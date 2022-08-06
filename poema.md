@@ -15,3 +15,10 @@ para acariciarte las mañanas a través
 de la ventana,
 para sacudirte la mirada en cualquier
 dirección ajena a tu rostro.
+
+Hay mujeres
+de ojos castaños
+con alma de gata.
+Hay mujeres
+de ojos verdes
+con alma de zorra.
